@@ -1,2 +1,7 @@
 # anything_new_idea
 this repository is open get new idea on any project.
+ABOUT ME
+it is day 12-10-2018.
+GAME WILL BE BASED ON CARD GAME .....A SIMPLE CARD GAME WHICH YOU CAN PLAY AND LET ME KNOW IF THERE IS SOMETHING I CAN DO TO MAKE MORE INTERSENTING...
+THANKS ,
+JAYANT DESWAL.
